@@ -10,3 +10,4 @@ Experiencia:
 
 Aluna Unimar
 Inglês avançado
+sei fazer brigadeiro
